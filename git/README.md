@@ -1,1 +1,1 @@
-Cool Kid
+So cool
